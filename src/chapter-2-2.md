@@ -1,4 +1,4 @@
-Chapter 2: Defining Positive Thinking: Recognizing the Connection Between Positive Thinking and Energy
+Recognizing the Connection Between Positive Thinking and Energy
 ======================================================================================================
 
 In this chapter, we will explore the connection between positive thinking and energy. We will discuss how a positive mindset can improve energy levels and provide practical tips for incorporating positive thinking practices into daily life.

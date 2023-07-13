@@ -1,4 +1,4 @@
-Chapter 2: Defining Positive Thinking: Identifying the Components of Positive Thinking
+Identifying the Components of Positive Thinking
 ======================================================================================
 
 In this chapter, we will explore the concept of positive thinking and identify its key components. We will discuss the benefits of each component and provide practical tips for cultivating a more positive mindset.

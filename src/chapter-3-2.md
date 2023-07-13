@@ -1,4 +1,4 @@
-Chapter 3: Strategies for Cultivating Positive Thinking: Developing a System for Self-Talk and Affirmations
+Developing a System for Self-Talk and Affirmations
 ===========================================================================================================
 
 In this chapter, we will explore strategies for developing a system for self-talk and affirmations to cultivate positive thinking. We will discuss the power of positive self-talk and affirmations, how to create effective affirmations, and practical tools for incorporating them into your daily routine.

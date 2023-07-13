@@ -1,4 +1,4 @@
-Chapter 4: Tools and Techniques for Boosting Energy and Improving Concentration: Using Visualization and Imagery for Improved Focus
+Using Visualization and Imagery for Improved Focus
 ===================================================================================================================================
 
 In this chapter, we will explore the benefits of visualization and imagery for boosting energy and improving concentration. We will discuss various techniques for incorporating these practices into our daily lives and reaping the rewards of a more focused and energized mind.

@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Obstacles and Challenges in Positive Thinking: Dealing with Setbacks and Maintaining Resilience in Positive Thinking
+Dealing with Setbacks and Maintaining Resilience in Positive Thinking
 ==========================================================================================================================================
 
 In this chapter, we will explore some of the obstacles and challenges that individuals may face when trying to maintain a positive mindset. We will discuss strategies for dealing with setbacks and maintaining resilience in positive thinking.

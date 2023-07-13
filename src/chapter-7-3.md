@@ -1,4 +1,4 @@
-Chapter 7: Measuring Success in Positive Thinking: Continuously Improving Positive Thinking Approaches and Mindsets
+Continuously Improving Positive Thinking Approaches and Mindsets
 ===================================================================================================================
 
 In this chapter, we will discuss how to measure success in positive thinking and continuously improve our positive thinking approaches and mindsets. We will explore various metrics for measuring success and techniques for adjusting our approach as needed.

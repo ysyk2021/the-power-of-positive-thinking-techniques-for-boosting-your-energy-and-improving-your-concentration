@@ -1,4 +1,4 @@
-Chapter 6: Applying Positive Thinking Across Different Areas of Life: Using Positive Thinking for Community Involvement and Social Justice
+Using Positive Thinking for Community Involvement and Social Justice
 ==========================================================================================================================================
 
 In this chapter, we will explore how to apply positive thinking practices to community involvement and social justice efforts. We will discuss practical strategies for using positive thinking to promote social change and contribute to a more just and equitable world.

@@ -1,4 +1,4 @@
-Chapter 2: Defining Positive Thinking: Creating a Framework for Positive Thinking
+Creating a Framework for Positive Thinking
 =================================================================================
 
 In this chapter, we will explore the concept of positive thinking and create a framework for understanding and practicing positive thinking. We will discuss the benefits of positive thinking, common misconceptions about positive thinking, and practical tools for cultivating a more positive mindset.

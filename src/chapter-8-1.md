@@ -1,4 +1,4 @@
-Chapter 8: Conclusion: Recap of Key Points
+Recap of Key Points
 ==========================================
 
 In this book, we have explored the power of positive thinking and how it can be applied to various areas of life. From boosting energy and improving concentration to personal growth, career advancement, entrepreneurship, community involvement, and social justice, positive thinking practices can help individuals achieve greater success and fulfillment.

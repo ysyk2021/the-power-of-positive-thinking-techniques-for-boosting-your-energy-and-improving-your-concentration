@@ -1,4 +1,4 @@
-Chapter 5: Overcoming Obstacles and Challenges in Positive Thinking: Navigating Negative Self-Talk and Limiting Beliefs
+Navigating Negative Self-Talk and Limiting Beliefs
 =======================================================================================================================
 
 In this chapter, we will explore how to overcome obstacles and challenges in positive thinking, specifically related to navigating negative self-talk and limiting beliefs. We will discuss practical strategies for identifying and reframing negative self-talk and limiting beliefs to cultivate a more positive mindset.

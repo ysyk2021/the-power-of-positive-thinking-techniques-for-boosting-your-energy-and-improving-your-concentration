@@ -1,4 +1,4 @@
-Chapter 3: Strategies for Cultivating Positive Thinking: Creating a Plan for Consistent Practice of Positive Thinking
+Creating a Plan for Consistent Practice of Positive Thinking
 =====================================================================================================================
 
 In this chapter, we will explore strategies for cultivating positive thinking and creating a plan for consistent practice. We will discuss the importance of mindset, the power of gratitude, and practical tools for incorporating positive thinking into your daily routine.
