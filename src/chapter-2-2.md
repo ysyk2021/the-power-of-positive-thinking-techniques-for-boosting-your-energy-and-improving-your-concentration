@@ -1,4 +1,4 @@
-Chapter: Recognizing the Connection between Positive Thinking and Energy
+Recognizing the Connection between Positive Thinking and Energy
 ========================================================================
 
 In this chapter, we will explore the powerful connection between positive thinking and energy. By understanding the impact of our thoughts on our energy levels, we can harness the potential to boost our overall well-being and improve concentration. Let us delve into the ways in which positive thinking techniques can positively influence our energy.
