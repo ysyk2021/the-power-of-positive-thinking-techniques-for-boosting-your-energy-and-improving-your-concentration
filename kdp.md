@@ -14,8 +14,6 @@ MingHai Zheng is the founder of zhengpublishing.com and lives in Wuhan, China. H
 
 
 
-Here are 20 Amazon search keywords related to "The Power of Positive Thinking: Techniques for Boosting Your Energy and Improving Your Concentration":
-
 1. Positive thinking
 2. Self-improvement
 3. Personal growth
