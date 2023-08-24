@@ -1,5 +1,3 @@
-Chapter 8: Conclusion
-=====================
 
 In this book, we have explored the power of positive thinking and how it can help boost your energy and improve your concentration. We have seen how positive thinking can help you overcome negative self-talk, increase your resilience, and achieve greater success in all areas of your life. In this final chapter, we will recap the key points of the book and provide some final thoughts and recommendations.
 

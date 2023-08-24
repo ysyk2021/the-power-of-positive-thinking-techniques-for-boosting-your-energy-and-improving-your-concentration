@@ -1,5 +1,3 @@
-Chapter 3: Strategies for Cultivating Positive Thinking
-=======================================================
 
 Cultivating positive thinking is a skill that can be developed through practice and dedication. In this chapter, we'll explore some effective strategies for building self-awareness, developing a system for self-talk and affirmations, and creating a plan for consistent practice of positive thinking.
 

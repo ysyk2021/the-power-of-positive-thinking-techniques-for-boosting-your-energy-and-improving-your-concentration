@@ -1,5 +1,3 @@
-Chapter 6: Applying Positive Thinking Across Different Areas of Life
-====================================================================
 
 In this chapter, we will explore how positive thinking can be applied across different areas of life, including career advancement, entrepreneurship, personal growth and fulfillment, community involvement, and social justice.
 

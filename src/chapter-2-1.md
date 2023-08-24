@@ -1,5 +1,3 @@
-Identifying the Components of Positive Thinking
-========================================================
 
 Positive thinking is a powerful mindset that can greatly impact our energy levels and concentration. By understanding the components of positive thinking, we can cultivate this mindset and enhance our overall well-being. In this chapter, we will explore the key elements that contribute to positive thinking and explore practical techniques for incorporating them into our daily lives.
 

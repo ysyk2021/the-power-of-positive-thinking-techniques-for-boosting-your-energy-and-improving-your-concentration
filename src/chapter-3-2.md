@@ -1,5 +1,3 @@
-Developing a System for Self-Talk and Affirmations
-===========================================================
 
 In this chapter, we will explore the power of self-talk and affirmations as effective techniques for boosting energy levels and improving concentration. By understanding the importance of positive thinking and self-affirmation, you can develop a system to enhance your overall well-being and achieve personal growth.
 

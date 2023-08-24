@@ -1,5 +1,3 @@
-Chapter 2: Defining Positive Thinking
-=====================================
 
 In this chapter, we will explore the concept of positive thinking and its benefits. We will identify the components of positive thinking, recognize the connection between positive thinking and energy, and create a framework for practicing positive thinking.
 

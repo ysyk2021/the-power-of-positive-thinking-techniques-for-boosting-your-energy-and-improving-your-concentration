@@ -1,5 +1,3 @@
-Navigating Negative Self-Talk and Limiting Beliefs
-===========================================================
 
 Negative self-talk and limiting beliefs are common obstacles that can hinder personal growth, productivity, and overall well-being. They have the power to consume our thoughts, diminish our confidence, and prevent us from reaching our full potential. However, by understanding and effectively navigating these patterns, we can break free from their grasp and cultivate a more positive mindset.
 
