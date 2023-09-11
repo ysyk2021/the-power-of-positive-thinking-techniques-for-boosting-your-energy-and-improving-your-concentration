@@ -1,3 +1,6 @@
+# The Power of Positive Thinking: Techniques for Boosting Your Energy and Improving Your Concentration
+
+Book Link: [https://zhengpublishing.com/the-power-of-positive-thinking-techniques-for-boosting-your-energy-and-improving-your-concentration/](https://zhengpublishing.com/the-power-of-positive-thinking-techniques-for-boosting-your-energy-and-improving-your-concentration/)
 
 "The Power of Positive Thinking: Techniques for Boosting Your Energy and Improving Your Concentration" is a book that offers practical strategies for cultivating positivity and achieving greater success and fulfillment in your life. Positive thinking is a powerful tool that can help you overcome obstacles, stay focused on your goals, and achieve greater overall wellbeing.
 
